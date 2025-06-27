@@ -79,6 +79,24 @@ tools->
 https;//addons.mozilla.org/en-us/firefox/addon/webrank-toolbar-pagerank-alexa/
 
 
+https://addons.mozilla.org/en-us/firefox/addon/webrank-toolvar-pagerank-alexa/
+https://www.seomoz.org/seo-toolbar
+https://www.seoquake.com/
+----------------------------------------------------
+class-3
+
+ webmaster tool login
+filemozila download
+--------------------------------------
+directory submission
+link building 
+seo old trick
+............
+webaite or domain - other website
+page rank 
+
+
+vmoptions.com
 
 
 
